@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+國立中山大學
+開設的財管所課程
+R語言的老師很認真教學
+手把手教很棒
+謝謝老師這麼用心教學!!!
+
